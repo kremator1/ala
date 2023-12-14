@@ -1,0 +1,1 @@
+Repozytorium przykładowe, do oceny
